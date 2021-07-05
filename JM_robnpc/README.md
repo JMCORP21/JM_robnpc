@@ -9,10 +9,3 @@ JOIN NOW TO WATCH MORE SCRIPTS : https://discord.gg/gxZqBTZ6h3
 JM CORP
 
 https://discord.gg/gxZqBTZ6h3
-https://discord.gg/gxZqBTZ6h3
-https://discord.gg/gxZqBTZ6h3
-https://discord.gg/gxZqBTZ6h3
-https://discord.gg/gxZqBTZ6h3
-https://discord.gg/gxZqBTZ6h3
-https://discord.gg/gxZqBTZ6h3
-https://discord.gg/gxZqBTZ6h3
